@@ -1,6 +1,6 @@
-::    |\__/,|   (`\
-::  _.|o o  |_   ) )
-:: -(((---(((--------
+   |\__/,|   (`\
+ _.|o o  |_   ) )
+-(((---(((--------
 
 Heyy, im NoSleep,
 im currently learning python and c++ (wish me luck)
