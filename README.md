@@ -20,4 +20,5 @@ love yall
 
 ## 🛠 Skills
 Graphic design, video editing, learning python & diff laguages rn.
+HTML, Python, Windows batch, CSS, javascript.
 
