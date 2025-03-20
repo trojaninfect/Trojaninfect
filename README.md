@@ -5,10 +5,12 @@
 Heyy, im NoSleep,
 
 im currently learning python and c++ (wish me luck)
+i know: Batch, Python, Css, javascript and html.
 
 my current discord is: nosleep.gov
 
 pronouns: any
+she/her & he/him preferred
 
 love yall
 ## 🔗 Links
