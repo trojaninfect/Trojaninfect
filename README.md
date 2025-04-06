@@ -16,5 +16,5 @@ love yall
 
 
 ## 🛠 Skills
-Graphic design, video editing, exploit analysis, pen tester, script writer.
+Graphic design, video editing, exploit analysis, pen tester, script writer, Security Researcher.
 i know: Batch, Python, Css, javascript and html.
