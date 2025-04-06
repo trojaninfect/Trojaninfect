@@ -4,7 +4,7 @@
 
 Heyy, im NoSleep,
 
-im currently learning python and c++ (wish me luck)
+exploit analysis, pen tester, script writer.
 i know: Batch, Python, Css, javascript and html.
 
 my current discord is: nosleep.gov
