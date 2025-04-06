@@ -4,9 +4,6 @@
 
 Heyy, im NoSleep,
 
-exploit analysis, pen tester, script writer.
-i know: Batch, Python, Css, javascript and html.
-
 my current discord is: nosleep.gov
 
 pronouns: any
@@ -19,6 +16,5 @@ love yall
 
 
 ## 🛠 Skills
-Graphic design, video editing, learning python & diff laguages rn.
-HTML, Python, Windows batch, CSS, javascript.
-
+Graphic design, video editing, exploit analysis, pen tester, script writer.
+i know: Batch, Python, Css, javascript and html.
