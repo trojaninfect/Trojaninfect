@@ -1,4 +1,4 @@
-![Logo](https://media-hosting.imagekit.io//729bf703026b4d60/1920%20x%201080%20pc%20wallpaper.jfif?Expires=1835159145&Key-Pair-Id=K2ZIVPTIP2VGHC&Signature=KBhp8eJ7OpRvQlDr8qUjF08tMzRG1jcD2BIbrug99AbZwnPmUQwIpdt5CHrDScv9~Mzw775X5OM6LlWmHWFnUjQleVVpzRDwixWdam44wAKsAs0IJEzM03jmlq2hwXfnlTeRVtLxOaVZVYhLngqhjOhqHbyZEIbMo-oVxCs9Z~ZqkOw~IFpoLlTKSDdqM3JxhnPvG0QKoWd6BcrvMebp1IWx7~aF0bPMyP0dNHlhRvChtb5QoqLDInB63tqhnI0o5xyo0NV4Jnqi8WkzrNBtc1Uu945UK4-A4RMd4ZNGczjDd3K8fdQwR9OwA57t55TpWp6pjWHYAHbP7-mJU6toyA__)
+![Logo](https://ik.imagekit.io/sbick8z0h/5666032d166b937721c4784e8f48b6a7.jpg?updatedAt=1747492064695)
 
 # Hey, I'm Conflicted! 👋
 
