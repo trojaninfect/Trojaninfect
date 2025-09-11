@@ -1,4 +1,4 @@
-![Logo](https://ik.imagekit.io/sbick8z0h/5666032d166b937721c4784e8f48b6a7.jpg?updatedAt=1747492064695)
+![Logo](https://ik.imagekit.io/sbick8z0h/rando.jpg?updatedAt=1757612208455)
 
 # Hey, I'm Conflicted! 👋
 
