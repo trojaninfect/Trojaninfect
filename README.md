@@ -3,7 +3,7 @@
 # Hey, I'm Conflicted! 👋
 
 
-my current discord is: kittenware
+my current discord is: nosleep.wav
 
 pronouns: any
 she/her & he/him preferred
