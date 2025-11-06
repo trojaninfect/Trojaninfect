@@ -1,6 +1,6 @@
 ![Logo](https://ik.imagekit.io/sbick8z0h/rando.jpg?updatedAt=1757612208455)
 
-# Hey, I'm Conflicted! 👋
+# Hey, I'm NoSleep! 👋
 
 
 my current discord is: nosleep.wav
